@@ -7,4 +7,4 @@
 - 💬 Ask me about my favorites programming language.
 - 📫 How to reach me: svpra7.
 - 😄 Pronouns: He.
-- ⚡ Fun fact: I paid for WinRAR.
+- ⚡ Fun fact: I paid for Pan.
